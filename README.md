@@ -1,6 +1,6 @@
 ### 👋 Hi there, I am German Yesid 
 
-![Image of Yaktocat](https://media-exp1.licdn.com/dms/image/C5616AQF8Hqb4Ob0K2Q/profile-displaybackgroundimage-shrink_350_1400/0/1517014569061?e=1640217600&v=beta&t=0YQbZ4Wi145PUqgrFIBgg4aIJb2IsGM2MofEFF3M2Jg)
+![ysk8 image](https://media-exp1.licdn.com/dms/image/C5616AQF8Hqb4Ob0K2Q/profile-displaybackgroundimage-shrink_350_1400/0/1517014569061?e=1648684800&v=beta&t=y1yPnm_8xgv9cpCFgP2VcrasXJs5EtRbcQAu0gIjpWE)
 
 ## 😃 Most of the time...
 
